@@ -3,7 +3,11 @@
 ### Meme & Hiburan
 
 
-https://user-images.githubusercontent.com/98243315/150661330-30c501ab-24ef-4c8a-9a56-42ad13aa7080.mp4
+https://user-images.githubusercontent.com/98243315/150661434-09f12964-926f-4673-a3d7-2a00783565fe.mp4
+
+
+
+
 
 
 
