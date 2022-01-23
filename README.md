@@ -1,4 +1,4 @@
-👋Hello World, i'm [Kang-Toxic]() Is Here
+👋 Hello Tod, i'm [Kang-Toxic]() Is Here
 
 - Moch Aang : [Apakah kamu sudah mengerti tentang rasa sakit? Jika kau tidak berbagi rasa sakit dengan mereka, mereka tidak akan bisa saling memahami.]()
 
