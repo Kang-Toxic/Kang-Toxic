@@ -1,19 +1,16 @@
-👋 Hello Tod, i'm [Kang-Toxic]() Is Here
+👋 Hello Tod, im [Kang-Toxic]() Is Here
 
-   `Stay Ngocok` `Comlay` `No Bucin` 
-`Penikmat Rokok` `Pecinta Meki Berkuah`
-_[https://www.facebook.com/Aang.XD404]()_
+- Moch Aang : _[Apakah kamu sudah mengerti tentang rasa sakit? Jika kau tidak berbagi rasa sakit dengan mereka, mereka tidak akan bisa saling memahami.]()_
+[______________________________________]()
 
-- Moch Aang : [Apakah kamu sudah mengerti tentang rasa sakit? Jika kau tidak berbagi rasa sakit dengan mereka, mereka tidak akan bisa saling memahami.]()
+- Kang Toxic : _[Jangan menangisi yang telah hilang, tetaplah tersenyum walau kenyataan tak seindah yang kita harapkan, dengan begitu kau akan belajar arti sabar, menerima dan rasa bersyukur]()_
+[______________________________________]()
 
-- The Dark Knight : [Selalu ada peluang untuk sukses, jika tidak ada maka saya hanya harus membuatnya]()
-
-- Kang Toxic : [Jangan menangisi yang telah hilang, tetaplah tersenyum walau kenyataan tak seindah yang kita harapkan, dengan begitu kau akan belajar arti sabar, menerima dan rasa bersyukur]()
-
+- The Dark Knight : _[Selalu ada peluang untuk sukses, jika tidak ada maka saya hanya harus membuatnya]()_
+[______________________________________]()
 
 #### Ngoding [(Ngocok Standing)]()
 ![FB_IMG_16379102835454960](https://user-images.githubusercontent.com/98243315/150663021-b1c82640-18af-4975-a378-a0f079cca05f.jpg)
-
 
 #### Terimakasih Kepada
 - [ ] [Moch Aang Ardiansyah-XD]()
