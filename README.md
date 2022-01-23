@@ -17,6 +17,7 @@
 - [ ] Facebook : [Aang.XD404]()
 - [ ] WhatsApp : [+6289524163441]()
 - [ ] You Tube : [Aang-XD]()
+- [ ] Twitter : [MyAldousXD]()
 
 #### _Make Doang Kaga Follow Kontol !!_
 
