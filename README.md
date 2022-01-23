@@ -1,14 +1,10 @@
 👋Hello World, i'm [Kang-Toxic]() Is Here
-
-### Meme & Hiburan
-
-
-https://user-images.githubusercontent.com/98243315/150661434-09f12964-926f-4673-a3d7-2a00783565fe.mp4
-
-
-
-
-
+#### [Watepak men !!]()
+![By1_Aldous_Ngab_Jangan_Epep](https://user-images.githubusercontent.com/98243315/150661513-5b678fc7-2915-478f-bbc7-10d6d5dd5521.jpg)
+#### [Thanks for]()
+- [ ] Moch Aang Ardiansyah-XD
+- [ ] The Dark Knight
+- [ ] Kang Toxic
 
 
 <!---
