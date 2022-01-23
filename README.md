@@ -1,5 +1,9 @@
 👋 Hello Tod, i'm [Kang-Toxic]() Is Here
 
+   `Stay Ngocok` `Comlay` `No Bucin` 
+`Penikmat Rokok` `Pecinta Meki Berkuah`
+_[https://www.facebook.com/Aang.XD404]()_
+
 - Moch Aang : [Apakah kamu sudah mengerti tentang rasa sakit? Jika kau tidak berbagi rasa sakit dengan mereka, mereka tidak akan bisa saling memahami.]()
 
 - The Dark Knight : [Selalu ada peluang untuk sukses, jika tidak ada maka saya hanya harus membuatnya]()
