@@ -10,9 +10,9 @@
 ![FB_IMG_16379102835454960](https://user-images.githubusercontent.com/98243315/150663021-b1c82640-18af-4975-a378-a0f079cca05f.jpg)
 
 #### Terimakasih Kepada
-- [ ] [Moch Aang Ardiansyah-XD]()
-- [ ] [The Dark Knight]()
-- [ ] [Kang Toxic]()
+- [Moch Aang Ardiansyah-XD]()
+- [The Dark Knight]()
+- [Kang Toxic]()
 
 #### Sosial Media
 - [ ] Facebook : [Aang.XD404]()
